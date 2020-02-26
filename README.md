@@ -1,1 +1,1 @@
-https://bmw2220.github.io/arexperiment/nikkitree.html
+https://bmw2220.github.io/arexperiment/nikkitree
